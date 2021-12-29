@@ -4,4 +4,4 @@ A Prank Website 😂
 
 ## Prank Your Foolish Friends Now! 😜
 
-[https://toxic-devil.com/#pp](https://toxic-devil.github.io/cyber-dome/)
+[https://nijin-munna.com/#pp](https://nijin-munna.github.io/cyber-dome/)
